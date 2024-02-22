@@ -2,4 +2,4 @@
 
 Nama: Herlandro Tribiakto
 
-Link Live Video: https://youtu.be/t32722ub-ng
+Link Live Video: https://youtu.be/gU7tBGw5Jrg
